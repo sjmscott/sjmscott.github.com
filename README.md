@@ -1,1 +1,0 @@
-# sjmscott.github.com
